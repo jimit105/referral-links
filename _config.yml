@@ -1,0 +1,3 @@
+google_analytics: UA-136790987-1
+plugins:
+  - jekyll-sitemap

@@ -17,5 +17,5 @@ Get $10 towards first order
 Get $30 after spending $30
 
 ## Lyft Referral Link
-<https://ride.lyft.com/invite/JIMIT10881>
+<https://ride.lyft.com/invite/JIMIT10881>  
 Get $5 in Lyft credit

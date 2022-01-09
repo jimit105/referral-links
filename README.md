@@ -15,3 +15,7 @@ Get $10 towards first order
 ## Rakuten Referral Link
 <https://www.rakuten.com/r/JIMITD6?eeid=28187>  
 Get $30 after spending $30
+
+## Lyft Referral Link
+<https://ride.lyft.com/invite/JIMIT10881>
+Get $5 in Lyft credit

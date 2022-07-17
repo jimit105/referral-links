@@ -8,11 +8,6 @@ Earn $200 after spending $2000 in the first 6 months of Card Membership
 <http://fbuy.me/siwcD>  
 Get $15
 
-## Instacart Referral Link
-<https://inst.cr/t/czM0Y0JnTGc0>  
-**Code: JUSERFAE8FC1EF**  
-Get $10 towards first order
-
 ## Rakuten Referral Link
 <https://www.rakuten.com/r/JIMITD6?eeid=28187>  
 Get $30 after spending $30
@@ -25,6 +20,10 @@ Get $10 off on first order
 <https://ride.lyft.com/invite/JIMIT10881>  
 Get $5 in Lyft credit
 
+## Instacart Referral Link
+<https://inst.cr/t/czM0Y0JnTGc0>  
+**Code: JUSERFAE8FC1EF**  
+Get $10 towards first order
+
 ## Educative Referral Link
 <https://educative.io/signup?referralCode=jimitd101-YQnlAolDMGn>
-

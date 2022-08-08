@@ -2,23 +2,27 @@
 
 ## American Express (AMEX) Credit Card Referral Link
 <https://americanexpress.com/en-us/referral/JIMITDfFa8?XLINK=MYCP>  
-Earn $200 after spending $2000 in the first 6 months of Card Membership
+Earn $200 back after spending $2000 in purchases in the first 6 months
 
 ## Mint Mobile Referral Link
 <http://fbuy.me/siwcD>  
-Get $15
+Get $15 for your next recharge using this link
 
 ## Rakuten Referral Link
 <https://www.rakuten.com/r/JIMITD6?eeid=28187>  
 Get $30 after spending $30
 
-## Grubhub Referral Link
-<https://www.grubhub.com/referral/8922ca50-03a1-11ed-b356-b1595be3a571>  
-Get $10 off on first order
-
 ## Lyft Referral Link
 <https://ride.lyft.com/invite/JIMIT10881>  
-Get $5 in Lyft credit
+Get $15 in Lyft credit towards your first ride
+
+## Grubhub Referral Link
+<https://www.grubhub.com/referral/8922ca50-03a1-11ed-b356-b1595be3a571>  
+Get $10 off on your first order
+
+## Uber Eats Referral Link
+<https://ubereats.com/feed?promoCode=eats-uberjimit105>
+Get $20 off on first order of minimum $25
 
 ## Instacart Referral Link
 <https://inst.cr/t/czM0Y0JnTGc0>  

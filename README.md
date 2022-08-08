@@ -21,7 +21,7 @@ Get $15 in Lyft credit towards your first ride
 Get $10 off on your first order
 
 ## Uber Eats Referral Link
-<https://ubereats.com/feed?promoCode=eats-uberjimit105>
+<https://ubereats.com/feed?promoCode=eats-uberjimit105>  
 Get $20 off on first order of minimum $25
 
 ## Instacart Referral Link

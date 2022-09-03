@@ -5,7 +5,7 @@
 Earn $200 back after spending $2000 in purchases in the first 6 months
 
 ## Nova Credit Referral Link
-<https://novacredit.com/r/jimit>
+<https://novacredit.com/r/jimit>  
 Use foreign credit history to apply for credit card  
 
 ## Mint Mobile Referral Link

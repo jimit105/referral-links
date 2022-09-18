@@ -1,7 +1,7 @@
 # Referral Links
 
 ## American Express (AMEX) Credit Card Referral Link
-<https://americanexpress.com/en-us/referral/JIMITDagSa?XLINK=MYCP>  
+<https://americanexpress.com/en-us/referral/JIMITDkYvl?XLINK=MYCP>  
 Earn $200 back after spending $2000 in purchases in the first 6 months
 
 ## Nova Credit Referral Link

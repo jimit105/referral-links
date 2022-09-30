@@ -29,9 +29,9 @@ Get $10 off on your first order
 Get $20 off on first order of minimum $25
 
 ## Instacart Referral Link
-<https://inst.cr/t/czM0Y0JnTGc0>  
-**Code: JUSERFAE8FC1EF**  
-Get $10 towards first order
+<https://inst.cr/t/47b83f1b9>  
+**Code: JDHOLAKIA**  
+Get $20 off and free delivery or pickup for your first order
 
 ## Educative Referral Link
 <https://educative.io/signup?referralCode=jimitd101-YQnlAolDMGn>

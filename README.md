@@ -1,4 +1,4 @@
-# Referral Links
+## _Referral Links_
 
 ## American Express (AMEX) Credit Card Referral Link
 <https://americanexpress.com/en-us/referral/JIMITDkYvl?XLINK=MYCP>  
@@ -16,6 +16,10 @@ Get $15 for your next recharge using this link
 <https://www.rakuten.com/r/JIMITD6?eeid=28187>  
 Get $30 after spending $30
 
+## PayPal Referral Link
+<https://py.pl/1g8OxM>  
+Earn $10 after spending $5
+
 ## Lyft Referral Link
 <https://ride.lyft.com/invite/JIMIT10881>  
 Get $15 in Lyft credit towards your first ride
@@ -32,10 +36,6 @@ Get $20 off on first order of minimum $25
 <https://inst.cr/t/47b83f1b9>  
 **Code: JDHOLAKIA**  
 Get $20 off and free delivery or pickup for your first order
-
-## PayPal Referral Link
-<https://py.pl/1g8OxM>  
-Earn $10 after spending $5
 
 ## Educative Referral Link
 <https://educative.io/signup?referralCode=jimitd101-YQnlAolDMGn>

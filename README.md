@@ -33,5 +33,9 @@ Get $20 off on first order of minimum $25
 **Code: JDHOLAKIA**  
 Get $20 off and free delivery or pickup for your first order
 
+## PayPal Referral Link
+<https://py.pl/1g8OxM>  
+Earn $10 after spending $5
+
 ## Educative Referral Link
 <https://educative.io/signup?referralCode=jimitd101-YQnlAolDMGn>

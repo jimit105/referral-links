@@ -21,7 +21,7 @@ Get $15 for your next recharge using this link
 Get $30 after spending $30
 
 ## PayPal Referral Link
-<https://py.pl/1g8OxM>  
+<https://py.pl/1jtGac>  
 Earn $10 after spending $5
 
 ## Lyft Referral Link

@@ -1,4 +1,4 @@
-## _Referral Links_
+# _Referral Links_
 
 ## American Express (AMEX) Credit Card Referral Link
 <https://americanexpress.com/en-us/referral/JIMITD5IhX?XLINK=MYCP>  

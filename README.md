@@ -5,7 +5,7 @@
 Earn $200 back after spending $2000 in purchases in the first 6 months
 
 ## Chase Checking Account Referral Link
-<https://accounts.chase.com/raf/share/3125435680>
+<https://accounts.chase.com/raf/share/3125435680>  
 Get $300 when you open a Chase Total Checking® account and make direct deposits totaling $500 or more within 90 days of coupon enrollment
 
 ## Remitly Money Transfer Referral Link

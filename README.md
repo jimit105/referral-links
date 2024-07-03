@@ -5,7 +5,7 @@
 Earn $200 back after spending $2000 in purchases in the first 6 months
 
 ## Webull Referral Link
-<https://a.webull.com/Nwcus1rEGyPSkWeNGi>  
+<https://a.webull.com/Nwcus1rEGyPSkWeGMD>  
 Get upto 75 Fractional Shares when you open and fund your Webull account
 
 ## Chase Checking Account Referral Link

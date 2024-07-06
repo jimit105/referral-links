@@ -12,6 +12,10 @@ Get upto 75 Fractional Shares when you open and fund your Webull account
 <https://accounts.chase.com/raf/share/3125435680>  
 Get $300 when you open a Chase Total Checking account and make direct deposits totaling $500 or more within 90 days of coupon enrollment
 
+## Amazon Prime Visa or Amazon Visa Credit Card
+<https://www.amazon.com/dp/BT00LN946S?externalReferenceId=d8f01d81-bfa6-4ec3-b267-3c727322b8c2>  
+Prime members can get a $200 Amazon Gift Card instantly upon approval
+
 ## Remitly Money Transfer Referral Link
 <https://remit.ly/22tgd67z>  
 Get a special Exchange Rate and $15 off the first transfer when sending $1000 or more

@@ -1,7 +1,7 @@
 # _Referral Links_
 
 ## American Express (AMEX) Credit Card Referral Link
-<https://americanexpress.com/en-us/referral/blue-cash-everyday-credit-card?ref=JIMITDG7YV&XLINK=MYCP>  
+<https://americanexpress.com/en-us/referral/blue-cash-everyday-credit-card?ref=JIMITDO1qD&XLINK=MYCP>  
 Earn $200 back after spending $2000 in purchases in the first 6 months
 
 ## Webull Referral Link
@@ -12,7 +12,7 @@ Get upto 75 Fractional Shares when you open and fund your Webull account
 <https://accounts.chase.com/raf/share/3125435680>  
 Get $300 when you open a Chase Total Checking account and make direct deposits totaling $500 or more within 90 days of coupon enrollment
 
-## Amazon Prime Visa or Amazon Visa Credit Card
+## Amazon Prime Visa or Amazon Visa Credit Card Referral Link
 <https://www.amazon.com/dp/BT00LN946S?externalReferenceId=d8f01d81-bfa6-4ec3-b267-3c727322b8c2>  
 Prime members can get a $200 Amazon Gift Card instantly upon approval
 

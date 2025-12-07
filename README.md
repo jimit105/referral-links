@@ -24,9 +24,6 @@ Get $10 Amazon.com e-gift code after sending $100 or more, within 30 days of cre
 <https://remit.ly/22tgd67z>  
 Get a special Exchange Rate and $15 off the first transfer when sending $1000 or more
 
-## Nova Credit Referral Link
-<https://novacredit.com/r/jimit>  
-Use foreign credit history to apply for credit card  
 
 ## Mint Mobile Referral Link
 <http://fbuy.me/siwcD>  

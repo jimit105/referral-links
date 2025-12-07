@@ -1,7 +1,7 @@
 # _Referral Links_
 
 ## American Express (AMEX) Credit Card Referral Link
-<https://americanexpress.com/en-us/referral/blue-cash-everyday-credit-card?ref=JIMITDO1qD&XLINK=MYCP>  
+<https://americanexpress.com/en-us/referral/blue-cash-everyday-credit-card?ref=JIMITDxA3V&XLINK=MYCP>  
 Earn $200 back after spending $2000 in purchases in the first 6 months
 
 ## Webull Referral Link
